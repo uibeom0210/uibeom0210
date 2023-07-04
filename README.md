@@ -2,7 +2,6 @@
 
 ## Hi there, I’m Uibeom Jung! 👋
 
-- Notion : [www.notion.so/uibeom0210](http://www.notion.so/uibeom0210)
 - Email : wjddmlqja17@gmail.com
 
 ---
